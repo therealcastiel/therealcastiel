@@ -1,4 +1,4 @@
-## Hi there 👋
+## ![me core](https://i.pinimg.com/736x/93/4a/b6/934ab6354acc0f1c6cea727391286109.jpg)
 
 <!--
 **SillyBubblez/SillyBubblez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
