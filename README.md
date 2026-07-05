@@ -4,7 +4,7 @@
 
 <p align="center">
   <img src="https://i.postimg.cc/Bnkc8HYC/castiel-stamp-3.png" />
-  castiel fictkin
+  suspected partial did sys
   <img src="https://i.postimg.cc/rFy978Rm/castiel-stamp-2.png" />
 </p>
 <!--
