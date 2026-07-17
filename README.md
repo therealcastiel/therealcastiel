@@ -4,7 +4,7 @@
 
 <p align="center">
   <img src="https://i.postimg.cc/Bnkc8HYC/castiel-stamp-3.png" />
-  @pt-walk-of-fame ponytown's castiel  .  partial did sys
+  suspected partial did sys for 2-3 years
   <img src="https://i.postimg.cc/rFy978Rm/castiel-stamp-2.png" />
 </p>
 <!--
