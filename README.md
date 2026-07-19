@@ -4,7 +4,7 @@
 
 <p align="center">
   <img src="https://i.postimg.cc/Bnkc8HYC/castiel-stamp-3.png" />
-  partial did sys , read links + sign tetratto 
+  partial did sys , read links + sign ata 
   <img src="https://i.postimg.cc/rFy978Rm/castiel-stamp-2.png" />
 </p>
 <!--
